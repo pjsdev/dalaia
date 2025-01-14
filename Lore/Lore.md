@@ -1,13 +1,13 @@
 ## The Primordial Soil
 
-Before [[Dalaia]], before [[Trilldais]] and before time itself, there was only a field of formless soil, a vast expanse of potential unseeded and dry. It hung in nothingness with no edges to discern it from the void. Then came [[Kaelthar]] as a seed to the soil [[Nythra]] flowed as nourishing water. Once they were joined grew upward and became a great tree whose leaves were the boundless heavens, and she sank into the soil to become the endless deep. They were opposites in form and nature, yet each was incomplete without the other. [[Kaelthar]] was luminous and restless, ever-reaching outward in his desire to create, while [[Nythra]] was still and silent with restrained potential.
+Before [[Dalaia]], before [[Trilldais]] and before time itself, there was only a field of formless soil, a vast expanse of potential, unseeded and dry. It hung in nothingness with no edges to discern it from the void. Then came [[Kaelthar]] as a seed to the soil and [[Nythra]] flowing as nourishing water. Once they were joined, he grew upward and became a great tree whose leaves were the boundless heavens while she sank into the soil to become the endless deep. They were opposites in form and nature, yet each was incomplete without the other. [[Kaelthar]] was luminous and restless, ever-reaching outward in his desire to create, while [[Nythra]] was still and silent with restrained potential.
 
-For countless eons they swayed in tumultuous darkness dancing together in their differences. From their eternal energy of their tension, sparks were born, igniting the first stars and scattering light into the darkness. As they continued to move together, their combined essence gave rise to the foundations of existence: light, shadow, chaos, order, creation and destruction.
+For countless eons they swayed in tumultuous darkness dancing together in their differences. From the eternal energy of their tension, sparks were born, igniting the first stars and scattering light into the darkness. As they continued to move together, their combined essence gave rise to the foundations of existence: light, shadow, chaos, order, creation and destruction.
 ## The Shaping of Dalaia
 
-[[Kaelthar]], in his exuberance, began to weave the first threads of life. He created the sun to cast light upon the shadows, and two silver seats for him and [[Nythra]] to sit on as orbs in the night sky. But his creations were violent and untamed, and for five timeless days they fell back into the primordial soil each time [[Kaelthar]] made them.
+[[Kaelthar]], in his exuberance, began to weave the first threads of life. He created the sun to cast light upon the shadows, and two silver thrones for him and [[Nythra]] as moons in the night sky. But his creations were violent and untamed, and for five timeless days they fell back into the primordial soil each time [[Kaelthar]] made them.
 
-On the sixth attempt, [[Nythra]] took pity on [[Kaelthar]] and reified her soil to provide structure to hold [[Kaelthar]]’s visions. She shaped the seas, grounding the winds, and formed the fertile earth from her depths. Her dense waters centred and nourished the fragile creations [[Kaelthar]] had envisioned. 
+On the sixth attempt, [[Nythra]] took pity on [[Kaelthar]] and reified her soil to provide structure to hold [[Kaelthar]]’s visions. She shaped the seas, the mountains and the fertile earth from her depths, nourishing the fragile creations [[Kaelthar]] had envisioned. 
 
 Together, they gave birth to [[Dalaia]], a world of endless potential.
 
@@ -40,7 +40,7 @@ With heavy hearts, they called their children together and spoke their final dec
 
 >“We leave you now, for this world is yours to shape. Tend to it, as we tended to each other. Protect it, but do not smother it. Let mortals grow through struggle and triumph, as you too shall grow. We will be watching from the farthest reaches of the heavens and the deepest folds of the ocean.”
 
-They joined, ascending together to become the stars and take their seats on the moons. They descended too, becoming the endless night of the depths. Their presence remains felt in every sunrise, every tide, and every storm, but they no longer intervene directly. The Ten divine siblings inherited a world filled with their parents’ contradictions with the task to steward it in growth and prosperity. 
+They joined, ascending together to become the stars and take their seats on the moons. Their presence remains felt in every sunrise, every tide, and every storm, but they no longer intervene directly. The Ten divine siblings inherited a world filled with their parents’ contradictions with the task to help it prosper.
 ## The Legacy of the Parents
 
 Mortals, aware of [[Kaelthar]] and [[Nythra]]’s departure, honour the Father and Mother as distant, untouchable forces. Prayers to them are rare and reserved for the most desperate moments. Instead, mortals turn to the Ten for guidance, as they are seen as more relatable and involved in the daily affairs of the world.
